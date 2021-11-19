@@ -1,0 +1,3 @@
+
+<!-- saved from url=(0035)https://3dxunion.ru/update/news.php -->
+<html><head><meta http-equiv="Content-Type" content="text/html; charset=UTF-8"></head><body _msthash="61815" _msttexthash="726995217">WELCOME!| <b>Match3D V2!</b> Welcome all and thank you for your cooperation, now we are more strong together, we are Match and we cooperate to make this game even better, it's time to enjoy!|https://cdn.discordapp.com/attachments/911267133395193856/911267203683352657/FullLogo_Transparent23dnews.png||||</body></html>
